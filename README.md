@@ -1,0 +1,1 @@
+Esta es mi Hoja de vida, la cual ire nutriendo con cada una de las experiencias laborales que vaya adquiriendo, así como los diferentes estudiós que realice, teniendo encuenta megusta superarme y dar siempre lo mejor de mí. 
